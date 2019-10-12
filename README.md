@@ -1,1 +1,0 @@
-# kukuhsepdiansyah21
